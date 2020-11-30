@@ -21,7 +21,5 @@ Além disso, me interesso muito e estou em um constante aprendizado sobre engenh
 ## :large_blue_diamond: Contato
 
 <b>Cel e whatsapp:</b> (14) 99625-7952
-
 <b>E-mail:</b> agnaldoburgojr@gmail.com
-
 <b>LinkedIn:</b> [Clique aqui](https://www.linkedin.com/in/agnaldoburgojr/)
